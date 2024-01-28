@@ -1,0 +1,4 @@
+- Schysst miljö
+- Trevliga admins
+- Bra scripts
+- Skapad av spelare, för spelare
